@@ -1,0 +1,2 @@
+# Paid-Zivpn-Script
+Panel
